@@ -1,4 +1,4 @@
-# software-engineer-resume
+# resume-template
 
 When you want to get a job it's very important to present yourself worthy. Resume Templates are perfect to create presentable vitae to help you in getting a job you're dreaming of. Pack includes kinds of templates. Just pick what reflects you best and add your personal information.
 
